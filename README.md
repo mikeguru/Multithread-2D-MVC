@@ -1,2 +1,0 @@
-# Spaceflight
-ALL RIGHTS RESERVED
